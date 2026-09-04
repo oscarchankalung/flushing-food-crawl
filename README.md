@@ -6,7 +6,7 @@ Montserrat and Rachel suggested doing a Flushing Food Crawl. I'm happy to guide 
 
 I have some spots in mind, but most street and restaurant food are good or interesting at least, so feel free to improvise or make suggestion. What do you guys think?
 
-Details: 
+Details: https://github.com/oscarchankalung/flushing-food-crawl/tree/main
 
 ## Polls
 
