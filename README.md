@@ -31,7 +31,7 @@ The following links can give you an idea on what Flushing is like.
 
 ## Spots
 
-* Snacks and Dessert
+* Snacks and Desserts
   * [Zhu Ji Dumpling House 朱記鍋貼](https://maps.app.goo.gl/eYYbfUMLCx8GTVc96)
   * [Joe’s Steam Rice Roll 石磨腸粉王](https://maps.app.goo.gl/YQPSTMB2RYJrDj9ZA)
   * [Fu Yuan 富源腸粉店](https://maps.app.goo.gl/RAZKJHR5dGfQoFdB7)
@@ -39,10 +39,10 @@ The following links can give you an idea on what Flushing is like.
   * [Kong Sihk Tong 港食堂](https://maps.app.goo.gl/wfVXU78XeREZWgGq8)
   * [Soy Bean Chan Flower Shop 陳豆花](https://maps.app.goo.gl/6HW3bquhkQxRERNY6)
   * [Yuan Yang Dessert 鸳鸯糖水铺](https://maps.app.goo.gl/n765AMQ5aRy2Boz4A)
-* Affordable Restaurant
+* Affordable Restaurants
   * [Shanghai You Garden 上海豫園](https://maps.app.goo.gl/E1x4bNDsknTPNL7i6)
   * [Haidilao Hot Pot 海底捞火锅](https://maps.app.goo.gl/S7td7F5g1RSxyRSo9)
-* Higher End Restaurant
+* Higher End Restaurants
   * [Nan Xiang Soup Dumplings 南翔小籠包](https://maps.app.goo.gl/Z9UM2ppoXqs4pops6)
   * [Lao Ke Le Shanghai Cuisine Restaurant 老克勒上海餐厅](https://maps.app.goo.gl/5SxuyjhDzFF8Qtub8)
   * [Alley 41 蜀巷](https://maps.app.goo.gl/WwVGgDNxeerHm6bUA)
